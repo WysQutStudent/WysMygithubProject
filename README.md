@@ -1,1 +1,2 @@
-# WysMygithubProject
+The moves of a group of European countries toward more integrated financial markets and a single European currency, the Euro, raise the issue of what is an optimal currency area.（一组欧洲国家朝着更加一体化的金融市场和单一的欧洲货币欧元迈进，引发了一个问题:什么是最优货币区?）
+人称：第三人称   时态：一般现在时  语态： 主动语态
